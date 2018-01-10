@@ -2,4 +2,4 @@
 
 network tools
 
-just shearch &&& learn 
+just learn &&&&&&&&&&& learn
